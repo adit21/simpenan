@@ -1,2 +1,0 @@
-"# simpenan" 
-"# simpenan" 
